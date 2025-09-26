@@ -5,4 +5,5 @@ Thi is HTML ENCRYPTOR TOOL All people enjoy...✅🖥️🧑‍💻
 
   <div align="center">
  <a href="https://git.io/typing-svg"
-    src="https://readme-typing-svg.demolab.com/?lines=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)
+    src="https://readme-typing-svg.demolab.com/lines=First+line+of+text;Second+line+of+text"
+ alt="Typing SVG" /></a>a>
