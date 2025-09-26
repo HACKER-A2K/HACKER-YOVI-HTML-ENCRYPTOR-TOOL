@@ -10,4 +10,4 @@ Thi is HTML ENCRYPTOR TOOL All people enjoy...✅🖥️🧑‍💻
 
 ## GETWHATSAPP CHANNEL:
 
-- **GET WHATSAPP CHANNEL** [GET WHATSAPP](https://whatsapp.com/channel/0029VbBB7X96mYPMbf8not2q)
+- **GET WHATSAPP CHANNEL** [CHANNEL](https://whatsapp.com/channel/0029VbBB7X96mYPMbf8not2q)
