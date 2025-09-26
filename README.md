@@ -8,6 +8,6 @@ Thi is HTML ENCRYPTOR TOOL All people enjoy...✅🖥️🧑‍💻
 </p>
 
 
-## CONNECT TO WHATSAPP CHANNEL:
+## GETWHATSAPP CHANNEL:
 
-- **GET WHATSAPP CHANNEL** [WHATSAPP CHANNEL](https://whatsapp.com/channel/0029VbBB7X96mYPMbf8not2q)
+- **GET WHATSAPP CHANNEL** [GET WHATSAPP](https://whatsapp.com/channel/0029VbBB7X96mYPMbf8not2q)
